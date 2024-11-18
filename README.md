@@ -1,4 +1,4 @@
-# Dandre williams
+# D'Andre williams
 I am a sudent at virginia state universty,
 I major in computer science, 
 I am from viginia Beach,
